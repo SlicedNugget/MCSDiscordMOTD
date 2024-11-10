@@ -1,4 +1,4 @@
-# **Sliced's Duelyard MCS Chicago **
+# **Sliced's Duelyard MCS Chicago**
 ## Join The MCS Discord Below
 
 ## <a id="Join The Mordhau Competitive Series (MCS) Discord">https://discord.gg/3CuueKAmBm
